@@ -1,5 +1,3 @@
-### Hey there 👋
-
 ### **Under Heavy Construction 🚧**
 
 <!--
